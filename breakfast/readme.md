@@ -1,10 +1,10 @@
 # 
 
-## Servings: 
+## Servings: 5 Servings
 
-## Time to prepare: 
+## Time to prepare: 20mins
 
-## Ingredients:
+## Ingredients: Eggs, bread, avocados
 
 
 ## Equipment needed: 
