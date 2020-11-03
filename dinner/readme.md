@@ -2,9 +2,11 @@
 
 ## Servings: 5 Servings
 
-## Time to prepare: 30 minutes
 
-## Ingredients: 
+## Time to prepare: 1 hour
+
+## Ingredients: Chicken, rice, water
+
 
 1 to 1 1/2 cups cooked plain rice
 1 cup chopped green onion
@@ -19,9 +21,6 @@ optional: sesame oil
 
 
 ## Equipment needed: Large frying pan
-
-
-## Steps for preparation:
 
 1. Scramble your eggs: Using a small pat of butter, scramble some eggs in a large sauté pan, breaking them into small pieces as you go.  Then transfer the eggs to a separate plate, and set aside.
 2. Sauté your veggies and garlic: Return your sauté pan to the heat, and sauté the onions, carrots, peas and garlic until soft and cooked through.
