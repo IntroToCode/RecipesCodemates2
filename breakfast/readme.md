@@ -1,12 +1,11 @@
 # Poached eggs on smashed avocado toast
 
 
-
-## Servings: 5 servings 
+## Servings: 5 Servings
 
 ## Time to prepare: 20mins
 
-## Ingredients:
+## Ingredients: Eggs, bread, avocados
 
 Bread, butter, 2 avocados, 4 eggs, paprika, salt, pepper, lemon juice, seed mix
 
