@@ -31,6 +31,6 @@ optional: sesame oil
 
 ### Notes:
 
-
+How many serving? Should we bring wine!
 
 ### Codemates #
